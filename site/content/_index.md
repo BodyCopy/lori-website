@@ -1,6 +1,6 @@
 ---
-title: Great coffee with a conscience
-subtitle: Support sustainable farming while enjoying a cup
+title: Travel Diary
+subtitle: Diaries from my travels abroad
 image: /img/home-jumbotron.jpg
 blurb:
   heading: Why Kaldi?
