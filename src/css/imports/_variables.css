@@ -1,7 +1,7 @@
 :root {
 	/* Colors */
-	--primary: ;
-	--highlight: rgba(254, 213, 198, 1);
+	--primary: darkcyan;
+	--highlight: #ffbeaf;
 	--white: rgba(255, 255, 255, 1);
 	--off-white: rgba(255, 253, 252, 1);
 	--grey-1: rgba(245, 243, 242, 1);
@@ -34,4 +34,11 @@
 	/* Miscelaneous */
 	--border-radius: .25rem;
 	--hover-transition: all 150ms ease;
+}
+
+/* Jons Classes */
+
+.nav-logo{
+	height: 100%;
+	width: auto;
 }
