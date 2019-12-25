@@ -42,3 +42,11 @@
 	height: 100%;
 	width: auto;
 }
+
+.footer-logo{
+	width: 20%;
+}
+
+h1.lh-title, p.lh-title{
+	padding: 0.1em 0.4em;
+}
