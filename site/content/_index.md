@@ -14,7 +14,7 @@ values:
     the Irish Isle and the villages of China to the villas of Greece. Join Lori
     as she embraces retirement and proves that 60 is the new 30!
 blurb:
-  heading: '   Theres more to Come'
-  text: '  Check-in regularly for updates.'
+  heading: There's More to Come
+  text: Keep an eye out for the adventures of 2020!
 ---
 
