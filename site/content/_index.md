@@ -3,12 +3,9 @@ title: Travel Diary
 subtitle: Diaries from my travels abroad
 image: /img/70195576_465405730678248_678744122852376576_n.jpg
 values:
-  heading: Our values
-  text: >-
-    Coffee is an amazing part of human culture but it has a dark side too – one
-    of colonialism and mindless abuse of natural resources and human lives. We
-    want to turn this around and return the coffee trade to the drink’s
-    exhilarating, empowering and unifying nature.
+  heading: '  '
+  image: /img/about-sustainable-farming.jpg
+  text: '    '
 blurb:
   heading: A Trip Around the World with Lori as your Guide
   text: >-
