@@ -11,7 +11,7 @@ values:
     to faraway exotic lands and taken back in time through historic castle
     hopping. Her writing will make you feel as though you were there and you
     will never miss out on one of her exciting voyages. From the Garden Isle to
-    the Irish Isle and the villages of China to the villas of Greece. Join Lori
+    the Irish Isle and the villages of China to the villas of Greece, join Lori
     as she embraces retirement and proves that 60 is the new 30!
 blurb:
   heading: There's More to Come
