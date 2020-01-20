@@ -1,6 +1,6 @@
 ---
 title: Nashville 2019
-date: 2020-01-20T19:58:41.658Z
+date: 2019-11-03T19:58:41.658Z
 description: Visited Nashville with Giles from Wednesday Oct. 30 - Saturday Nov. 3
 image: /img/thumb_img_1599_1024.jpg
 ---
