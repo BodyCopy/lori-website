@@ -2,7 +2,7 @@
 title: Mele Kalikimaka!
 date: 2019-12-25T02:24:14.831Z
 description: |+
-  Kauai, Hawaii 2019-2020
+  Merry Christmas Mom!! A place for your travel journals!
 
 image: /img/received_529837570941748.jpeg
 ---
