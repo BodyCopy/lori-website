@@ -164,19 +164,37 @@ Weather: sunny, warm, slight breeze, 25 degrees.
 
 Very exciting day - up early to attend the Highland Games in Braemar. We arrived early and found our seats in the uncovered grandstand. Awesome seats with a view of all the events including the Royal pavilion. Purchased Braemar Gathering swag before they ran out of everything. Shelley and I purchased scarves, Greg and Giles got fleeces and Eileen got a Scotland Heather scarf from a local vendor.
 
+![](/img/img_0424.jpg)
+
 Came in handy as initially it was very chilly but by noon the day was very sunny and warm. The layers came off and our faces got burnt.
+
+![](/img/img_0434.jpg)
 
 Highlights of the games included the hammer throw, caber toss, high weight toss and the tug of war events. All in their kilts! We even saw a game record set in the high toss at 16 ft. Set by a very impressive looking dude from the Czech Republic.
 
+![](/img/img_0444.jpg)
+
+![](/img/img_0459.jpg)
+
 The massed piping bands piping in were amazing especially when they all marched in together and played in unison. There were 12 bands in total, each performed separately and three times all together.
+
+![](/img/img_0522.jpg)
 
 They had many running races including relay as well as a long distance run up and down the mountain which had a height of 1200 ft. The fastest runner did it in 25 minutes! It was fun to watch the local children competing in the sac races.
 
+![](/img/img_0513.jpg)
+
+![](/img/img_e0514.jpg)
+
 Most memorial event though was watching The Queen arrive in her Bentley and sitting in her Royal Box with Camilla and Charles. In attendance was also her grandchild Peter and his wife, Autumn ( a Canadian)! She was piped out with the massed bands (12 in all). We were able to get photos when she drove right by us.
+
+![](/img/img_0534.jpg)
 
 Also worth mentioning was the beautiful drive through the highlands to the gathering and back. Windy roads, and the wandering bad ass sheep didn’t stop Greg from Indy driving at break neck speeds.
 
 Wandered around the quaint town of Braemar after the gathering but too busy to get dinner so we drove to Pitlochry.
+
+![](/img/img_0538.jpg)
 
 All in all a very good day!
 
