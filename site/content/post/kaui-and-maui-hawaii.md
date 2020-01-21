@@ -1,5 +1,5 @@
 ---
-title: 'Kaui and Maui, Hawaii'
+title: 'Kauai and Maui, Hawaii'
 date: 2020-01-05T22:23:03.359Z
 description: >-
   Celebrated Christmas 2019 and New Year's 2020 in beautiful Hawaii with the
