@@ -204,13 +204,13 @@ Weather: sunny, warm 24 degrees
 
 Beautiful misty morning, Giles, Greg and I went for a walk up the hill spotting a hidden walled garden, grass tennis courts, logging road including a huge tractor coming down the mountain with a load of timber, an ancient glacial boulder and a Bronze Age stone cattle enclosure. Shelley and Eileen went by the lake walk, over to the island and also went into the walled garden.
 
-Drove to Blair Atholl and to Blair Castle parts built in 1269. Castles had many rooms to view with lots of mounted animal skulls. The surrounding countryside is breathtaking.
+Drove to Blair Atholl and to Blair Castle. parts of castle built in 1269. Castle had many rooms to view with lots of mounted animal skulls (weird). The surrounding countryside is breathtaking.
 
-We stopped off in Killiecrankie to view a gorge, waterfall and old stone rail bridge. Reportedly a Jacobite had leaped 18ft to freedom when fleeing a redcoat in the 1700’s. if true, very impressive.
+We stopped off in Killiecrankie to view a gorge, waterfall and old stone rail bridge. Reportedly a Jacobite had leaped 18ft to freedom when fleeing a redcoat in the 1700’s. if true, very impressive. Giles tried...unsuccessful!
 
-Drove to Moulin, just outside Pitlochry for dinner and drinks at the The Moulin Inn. Awesome meal, steak and ale pies, roast beef and scampi/salmon salad. The best was the sticky whisky fudge pudding with warm custard. Giles preferred his with ice cream.
+Drove to Moulin, just outside Pitlochry for dinner and drinks at The Moulin Inn. Awesome meal, steak and ale pies, roast beef and scampi/salmon salad. The best was the sticky whisky fudge pudding with warm custard. Giles preferred his with ice cream.
 
-Giles driving today, only hit the curb once and only needed one reminder to stay on the left.
+Giles driving today, only hit the curb once and only needed one reminder to stay on the left!
 
 We are sorry to leave this outstanding home in the middle of the highlands. Definitely could of stayed longer.
 
