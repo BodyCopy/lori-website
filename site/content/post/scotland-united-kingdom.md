@@ -272,19 +272,39 @@ Weather: Rain, cloudy 16 degrees
 
 **Tuesday September 10th**
 
+![](/img/img_0656.jpg)
+
+![](/img/img_0655.jpg)
+
 Beautiful sunrise overlooking the Firth of Moray. Surprised to see ponies right next door.
+
+![](/img/img_0660.jpg)
+
+![](/img/img_0652.jpg)
 
 Headed off to Culloden Battlefield. Great information display centre. Very sad and while walking the field you can see stone markers indicating the clans that suffered losses.
 
+![](/img/img_0666.jpg)
+
+![](/img/img_0664.jpg)
+
 Able to get up close and personal with a few hairy coo’s. They look so beautiful.
+
+![](/img/img_0673.jpg)
 
 We also went to the Clava Cairns, Bronze Age temple and burial grounds. Great example of standing stones. We tried but no one passed through.
 
+![](/img/img_0693.jpg)
+
 We had a great lunch at Cawdor Tavern, tried not to have dessert but couldn’t do it. Most of us indulged.
+
+![](/img/img_0712.jpg)
 
 Went to Cawdor Castle but decided not to go in and tour. Ended up in the wool shop instead. Lori bought fingerless gloves...Giles didn’t get it.
 
 Drove to Cromarty, at the tip of the Black Isle however disappointing as it has huge oil platforms obscuring the view.
+
+![](/img/img_0717.jpg)
 
 Weather: rainy, cold and windy. 15 degrees
 
@@ -292,7 +312,7 @@ Weather: rainy, cold and windy. 15 degrees
 
 Heading to Loch Ness this morning. Very scenic route along lake. Went to Urquhart Castle, medieval ruin perched on the shores of Loch Ness. Unfortunately no sign of Nessie but did see a replica trebuchet used to destroy the castle after the Jacobite rebellion. This castle was owned by the Grant clan for most of its life but later destroyed by the MacDonalds. It was extremely windy adding to the air of desolation.
 
-From here we drove inland through the mountains with breathtaking vistas. We stopped at a small town called Invermoriston to view the falls and an ancient stone bridge. Very picturesque! We even saw another crop of circle stones in the middle of a farmers field.
+From here we drove inland through the mountains with breathtaking vistas. We stopped at a small town called Invermoriston to view the falls and an ancient stone bridge. Very picturesque! We even saw another crop of circle stones in the middle of a farmer's field.
 
 Stopped at Fort Augustus for lunch at the The Loch Inn. Had a lighter lunch which turned out to be more food than we had planned on. No dessert this time though! Watched a few boats travel down the canal using the lift locks.
 
