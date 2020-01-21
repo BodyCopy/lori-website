@@ -1,6 +1,6 @@
 ---
 title: Mele Kalikimaka!
-date: 2019-12-25T02:24:14.831Z
+date: 2018-06-10T01:24:14.831Z
 description: |+
   Merry Christmas Mom!! A place for your travel journals!
 
