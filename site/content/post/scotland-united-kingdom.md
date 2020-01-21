@@ -202,17 +202,41 @@ Weather: sunny, warm 24 degrees
 
 **Sunday September 8th**
 
+![](/img/img_0627.jpg)
+
 Beautiful misty morning, Giles, Greg and I went for a walk up the hill spotting a hidden walled garden, grass tennis courts, logging road including a huge tractor coming down the mountain with a load of timber, an ancient glacial boulder and a Bronze Age stone cattle enclosure. Shelley and Eileen went by the lake walk, over to the island and also went into the walled garden.
+
+![](/img/img_0542.jpg)
+
+![](/img/img_0551.jpg)
+
+![](/img/img_0555.jpg)
 
 Drove to Blair Atholl and to Blair Castle. parts of castle built in 1269. Castle had many rooms to view with lots of mounted animal skulls (weird). The surrounding countryside is breathtaking.
 
+![](/img/img_0558.jpg)
+
+![](/img/img_0580.jpg)
+
+![](/img/img_0595.jpg)
+
 We stopped off in Killiecrankie to view a gorge, waterfall and old stone rail bridge. Reportedly a Jacobite had leaped 18ft to freedom when fleeing a redcoat in the 1700’s. if true, very impressive. Giles tried...unsuccessful!
 
+![](/img/img_0610.jpg)
+
 Drove to Moulin, just outside Pitlochry for dinner and drinks at The Moulin Inn. Awesome meal, steak and ale pies, roast beef and scampi/salmon salad. The best was the sticky whisky fudge pudding with warm custard. Giles preferred his with ice cream.
+
+![](/img/img_0618.jpg)
+
+![](/img/img_4373.jpg)
+
+![](/img/img_0621.jpg)
 
 Giles driving today, only hit the curb once and only needed one reminder to stay on the left!
 
 We are sorry to leave this outstanding home in the middle of the highlands. Definitely could of stayed longer.
+
+![](/img/img_0578.jpg)
 
 Weather: cool this morning then sunny, no wind, 16 degrees.
 
