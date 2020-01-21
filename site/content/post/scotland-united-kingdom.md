@@ -242,15 +242,31 @@ Weather: cool this morning then sunny, no wind, 16 degrees.
 
 **Monday September 9th**
 
-Rainy morning but spectacular mist across the highlands. We are sorry to leave this area. Well did a first today, went on a whiskey tour and tasting at Edradour Distillery. Drinking at 10:00 a.m. we all enjoyed this small independent run distillery, great tour. They even gave us a free whiskey glass!
+Rainy morning but spectacular mist across the highlands. We are sorry to leave this area. 
 
-Off toward Inverness,stopping along the way at the Dalwhinnie Distillery. Didn’t do tour but Shelley, Eileen and I had a three tasting with delicious chocolates. We all enjoyed the 15 year old so purchased a bottle for our stay in the area.
+![](/img/img_0622.jpg)
 
-Headed to Inverness, went to a restored 1639 church turned into a bookstore. Sold many antique books and prints. Great fun poking around here. Shelley and I purchased over hundred year old prints of Scottish sites.
+Well did a first today, went on a whisky tour and tasting at Edradour Distillery, drinking at 10:00 a.m. we all enjoyed this small independent run distillery, a great tour. They even gave us a free whiskey glass!
 
-Had a great dinner at the Mustard Seed, luckily getting in for the early dinner seating. Within minutes of opening it was full so we were lucky to get in. Are too much...all had desserts that we did not need but the Edon Mess, pannacotta and apple crumble pie were delicious!
+![](/img/img_0633.jpg)
 
-Drove to Rosemarkie and despite not having directions managed to find our seaside house. At first stopped to ask for directions knocking on the door of the place that was ours..surprisingly no one answered. Luckily the owner lives in the house next door and came out to welcome us.
+![](/img/img_0641.jpg)
+
+![](/img/img_0643.jpg)
+
+Off toward Inverness, stopping along the way at the Dalwhinnie Distillery. Didn’t do tour but Shelley, Eileen and I had a three tasting with delicious chocolates. We all enjoyed the 15 year old so purchased a bottle for our stay in the area.
+
+![](/img/img_0645.jpg)
+
+Headed to Inverness, went to a restored 1639 year old church turned into a bookstore. Sold many antique books and prints. Great fun poking around here. Shelley and I purchased over hundred year old prints of Scottish sites.
+
+![](/img/img_0648.jpg)
+
+Had a great dinner at the Mustard Seed, getting in for the early dinner seating. Within minutes of opening it was full so we were lucky to get in. Ate too much...all had desserts that we did not need but the Edon Mess, pannacotta and apple crumble pie were delicious!
+
+![](/img/img_0651.jpg)
+
+Drove to Rosemarkie and despite not having directions managed to find our seaside house in the dark. At first stopped to ask for directions knocking on the door of the place that was ours..surprisingly no one answered. Luckily the owner lives in the house next door and came out to welcome us.
 
 Weather: Rain, cloudy 16 degrees
 
