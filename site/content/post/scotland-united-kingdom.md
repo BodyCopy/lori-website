@@ -424,17 +424,33 @@ Weather: sunny with short periods of rain. 13 degrees
 
 **Saturday September 14th**
 
+![](/img/img_0903.jpg)
+
 Woke to a raging wind and rain storm. Looks like it will be like this all day. Well it did rain all day but that didn’t stop us from braving the weather to do the Trotternish Peninsula. Absolutely crazy winds at 85 mph at Lealt Gorge. Tried to capture how windy and rainy it truly was on video. The wind was so strong you couldn’t walk upright.
+
+![](/img/img_0905.jpg)
+
+![](/img/img_0911.jpg)
 
 Stopped at Kilt Rock for more wind and rain. Beautiful view of sea and waterfall. Couldn’t really see the rock formations of The Quiraing but still can tell how beautiful the countryside is.
 
+![](/img/img_e0925.jpg)
+
 Would of loved to walk around the ruin of Duntulum Castle but it was just too wet. Went to the Skye Museum of Island Life, where you could tour a number of original and reproduction thatched stone huts originally inhabited by crofters. Could really get a sense of how hard life would of been for them.
 
-Headed back to the house for much needed warm clothes,hot toddies and a roaring fire.
+![](/img/img_0937.jpg)
+
+Headed back to the house for much needed warm clothes, hot toddies and a roaring fire.
+
+![](/img/img_0922.jpg)
 
 Once back got all that plus a light charcuterie and a Scottish movie, The Outlaw King.
 
-Went out to a Michelin star restaurant tonight, Loch Bay in Stein. Still windy and rainy so unfortunately no sunset. Fantastic seafood though. Five courses-all seafood-lobster, prawns, mussels, oysters, clams. Finished with amazing sauces. Each course and each mouthful filled with flavours. Desserts delicious too- traditional clootie with whiskey sauce, soufflés and a selection of small cakes/tarts. All completely stuffed.
+Went out to a Michelin star restaurant tonight, Loch Bay in Stein. Still windy and rainy so unfortunately no sunset. Fantastic seafood though. Five courses-all seafood-lobster, prawns, mussels, oysters, clams. Finished with amazing sauces. Each course and each mouthful filled with flavours. Desserts delicious too- traditional clootie with whisky sauce, soufflés and a selection of small cakes/tarts. All completely stuffed.
+
+![](/img/img_0948.jpg)
+
+![](/img/img_0943.jpg)
 
 Weather: rain, high high winds (80+ mph), 13 degrees, feels colder.
 
