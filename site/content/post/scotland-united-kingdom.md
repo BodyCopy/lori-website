@@ -456,21 +456,37 @@ Weather: rain, high high winds (80+ mph), 13 degrees, feels colder.
 
 **Sunday September 15th**
 
+![](/img/img_0975.jpg)
+
 Must leave the beautiful Isle of Skye for Oban. We are taking the ferry to Mallaig. Very long drive today made worse with cramped quarters in the back and very windy roads.
+
+![](/img/img_0953.jpg)
 
 Made a pit stop to a lookout in Broadford to see the mountain range, eagles (didn’t see any) and a small waterfall.
 
+![](/img/img_0957.jpg)
+
+![](/img/img_0960.jpg)
+
 We drove through Fort Williams and took a side trip to Ben Nevins waterfalls. Looked exactly like a fairy glen. Took time to eat lunch in the glen.
 
-Arrived into the cute seaport, Oban. Our three bedroom flat is in walking distance of the town. Basic accommodation with a view of the water. Only one bathroom though.
+![](/img/img_0988.jpg)
 
-Went to the distillery tour and tasting. Another whiskey we like and another glass to take home.
+![](/img/img_0990.jpg)
+
+Arrived into the cute seaport, of Oban. Our three bedroom flat is in walking distance of the town. Basic accommodations with a view of the water. Only one bathroom though.
+
+Went to the distillery tour and tasting. Another whisky we like and another glass to take home!
+
+![](/img/img_0994.jpg)
 
 Went to Oban Inn to listen to traditional music. Awesome hearing a number of musicians jamming together.
 
-Went to Markies Dan’s for dinner. Nothing special especially after the last two days of eating splendour.
+Went to Markies Dan for dinner. Nothing special especially after the last two days of eating splendour.
 
 Went back to the Oban Inn to hear live music, this time a solo guitar player. He was very good, playing lots of popular tunes. The bar was full of very young drunk lads who were spoiling for a fight and couldn’t keep their hands off each other. Clearly there is a shortage of lasses in this town. Very amusing to watch them though.
+
+![](/img/img_0995.jpg)
 
 Weather: cloudy with some sun. No rain :), 13 degrees.
 
@@ -480,11 +496,11 @@ Off on our island tour today. Began with a 45 minute ferry ride to the Isle of M
 
 Mull coach took an hour and half to get across island. From here we took another short ferry to the Isle of Iona. Very small pretty island with a restored medieval Abby and nunnery. Settled in 563 AD by Columba. Great audio guide.
 
-Also stopped in the Martyr’s Cafe for fresh wine and garlic mussels. Yum, yum. Left this island in late afternoon and repeated the trip back to Oban.
+Also stopped in the Martyr’s Cafe for wine and fresh garlic mussels. Yum, yum. Left this island in late afternoon and repeated the trip back to Oban.
 
 Outside the ferry terminal, a little shack serving fresh seafood. Greg, Eileen and Lori partook of the very fresh oysters.
 
-Went to dinner at The Seafood House, food looked great. Scallops, langostinas, chowder, Lori and Giles not feeling well came back early.
+Went to dinner at The Seafood House, food looked great. Scallops, langostinas, chowder, Lori and Giles not feeling well, came back early.
 
 Weather: cloudy, sunny bursts, 13 degrees
 
