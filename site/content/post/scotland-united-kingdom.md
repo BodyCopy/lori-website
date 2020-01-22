@@ -310,17 +310,39 @@ Weather: rainy, cold and windy. 15 degrees
 
 **Wednesday September 11th**
 
-Heading to Loch Ness this morning. Very scenic route along lake. Went to Urquhart Castle, medieval ruin perched on the shores of Loch Ness. Unfortunately no sign of Nessie but did see a replica trebuchet used to destroy the castle after the Jacobite rebellion. This castle was owned by the Grant clan for most of its life but later destroyed by the MacDonalds. It was extremely windy adding to the air of desolation.
+![](/img/img_0722.jpg)
+
+Heading to Loch Ness this morning. Very scenic route along lake. Went to Urquhart Castle, medieval ruin perched on the shores of Loch Ness. Unfortunately no sign of Nessie but did see a replica trebuchet used to destroy the castle after the Jacobite rebellion. 
+
+![](/img/img_0724.jpg)
+
+This castle was owned by the Grant clan for most of its life but later destroyed by the MacDonalds. It was extremely windy adding to the air of desolation.
+
+![](/img/img_0742.jpg)
+
+![](/img/img_e0739.jpg)
 
 From here we drove inland through the mountains with breathtaking vistas. We stopped at a small town called Invermoriston to view the falls and an ancient stone bridge. Very picturesque! We even saw another crop of circle stones in the middle of a farmer's field.
 
+![](/img/img_0751.jpg)
+
+![](/img/img_0756.jpg)
+
 Stopped at Fort Augustus for lunch at the The Loch Inn. Had a lighter lunch which turned out to be more food than we had planned on. No dessert this time though! Watched a few boats travel down the canal using the lift locks.
+
+![](/img/img_0767.jpg)
 
 Headed back up Loch Ness and went to Tomatin Distillery but unfortunately were too late for the tour. However we were able to watch a short movie and then sample a couple of their scotches. We all liked different ones but in the end did not purchase anything but a glass.
 
+![](/img/img_0764.jpg)
+
 Prior to dinner at the Anderson In Fortrose we went to Chanonry Point hoping to see dolphins or seals. Thought I saw a seal, turns out it was a black dog swimming. Extremely windy, hunted along beach for sea glass and hagstones (stones with a hole in it).
 
+![](/img/img_0781.jpg)
+
 Had a great meal in the Anderson, an eclectic restaurant run by an American couple. Music was being piped in by an old hifi turn table. Got to hear Rod Stewart’s -footloose album.
+
+![](/img/img_0780.jpg)
 
 Beautiful full moon overhanging the water tonight.
 
