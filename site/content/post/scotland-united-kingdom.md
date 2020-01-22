@@ -350,15 +350,31 @@ Weather: rainy, extremely windy, felt colder than it was. When the sun did come 
 
 **Thursday September 12th**
 
-Heading off this morning to Isle of Skye via the Dalmore Distillery. Unfortunately we needed to prebook a tour which we did not so instead had a wee dram tasting, purchased a glass and were on the road. Decided not to purchase the 14,000 pound bottle of whiskey they had on display.
+![](/img/img_0783.jpg)
+
+Heading off this morning to Isle of Skye via the Dalmore Distillery. Unfortunately we needed to prebook a tour which we did not so instead had a wee dram tasting, purchased a glass and were on the road. Decided not to purchase the 14,000 pound bottle of whisky they had on display.
+
+![](/img/img_0790.jpg)
 
 Drove to Eilean Donan, a medieval castle of clan McCrae . It is perched on an island and is accessed by a beautiful stone bridge . The current owners still live in one wing but the rest of the keep is open. They have set up most of the rooms to view as living diaramas. Gives you a sense of how they would of lived. Couldn’t believe how narrow the passageways and staircases were. They had a room set up in honour of John McCrae, the Canadian poet who wrote In Flanders Field.
 
-Long drive over the bridge to the Isle of Skye . Roads alternated between being wide and smooth to narrow, single lane and bumpy. Needed to find passing places to let others go by. Difficult when there is constant traffic oncoming. The drive through the hills were breathtaking.
+![](/img/img_0792.jpg)
+
+![](/img/img_0794.jpg)
+
+Long drive over the bridge to the Isle of Skye . Roads alternated between being wide and smooth to narrow, single lane and bumpy. Needed to find passing places to let others go by. Difficult when there is constant traffic and sheep oncoming. The drive through the hills was breathtaking.  Stopped to watch some fishermen pull in their catch of the day,
+
+![](/img/img_0806.jpg)
+
+![](/img/img_0816.jpg)
 
 Our place at Dunhillan Ard cottage is spectacular . High up on a hill with sweeping views of the ocean. The inside is beautifully decorated.
 
-Went to eat at the Edinbane Inn, very popular local spot. We met Giles’ cousin, Donna and her husband, Neil. They have not seen each other for 42years. They own a sheep farm, we are hoping to visit them before we leave.
+![](/img/img_0826.jpg)
+
+Went to eat at the Edinbane Inn, very popular local spot. We met Giles’ cousin, Donna and her husband, Neil. They have not seen each other for 42 years. They own a sheep farm, we are hoping to visit them before we leave.
+
+![](/img/img_0822.jpg)
 
 Back at our place for a fire and a scotch.
 
@@ -366,23 +382,39 @@ Weather: sunny , cloudy and rain. 13 degrees
 
 **Friday September 13th**
 
+![](/img/img_0828.jpg)
+
 At the end of the road we are on, is an old abandoned church and cemetery, Trumpan. Another scene of warring clans taking revenge on each other by massacring innocents in a church while worshipping. Perched overlooking the sea, sad and desolate.
+
+![](/img/img_0834.jpg)
 
 Did a drive-by sighting of Dunvegan Castle, couldn’t see it from the gate so drove along the coast and got a great vista of the castle from the road. The lighting wasn’t great so castle blends in to the surroundings on our cameras.
 
 Headed to the Fairy Pools, a series of waterfalls cascading down the mountains. Didn’t have enough time to do the entire trail so only could view the lower falls.
 
+![](/img/img_0854.jpg)
+
 Went to Kinoch Lodge for a four course Michelin star lunch. Just as we were arriving a helicopter landed with two gentlemen arriving for lunch.
 
 The service was outstanding as was the food. We had scallops, pigeon breast, red pepper and olive soup, venison and salmon. Desserts weren’t too shabby either- chocolate and hazelnut torte with coconut ice cream and the other was a creme brûlée with orange sorbet.
 
+![](/img/img_0859.jpg)
+
+![](/img/img_0866.jpg)
+
 The helicopter guests were sitting near us and struck up a conversation with us. We chatted about us not being American and what we had done since arriving. They indicated they were businessmen in development, oil and tourism interests. Guess so, if you can arrive for lunch from Edinburgh in your own private helicopter.
+
+![](/img/img_0872.jpg)
 
 Apparently a woman I met in the parking lot said the last time she was here a couple arrived in a luxury yacht, and then rowed to shore in evening attire. Guess this is the place to be!
 
-Drove to a small gin and whiskey distillery, had a tasting. Bought more glasses and a bottle of gin.
+Drove to a small gin and whisky distillery, had a tasting. Bought more glasses and a bottle of gin.
 
 Went to Kilmore church the scene of another early clan massacre. It was definitely eery, filled with old tombstones, crumbling church walls and sunken grounds. This place is definitely haunted, was the early site of pagan rituals as well. Wish I could come back at night. Fitting we are here on Friday the 13th! Great picture taking opportunity.
+
+![](/img/img_0889.jpg)
+
+![](/img/img_0894.jpg)
 
 Prior to heading back to the house we stopped at the Stein Inn (circa 1790) for a drink. Oldest bar in the area. Unfortunately could only stand at the bar as rest of place was for dinner reservations only.
 
