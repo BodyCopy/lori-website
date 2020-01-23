@@ -492,21 +492,43 @@ Weather: cloudy with some sun. No rain :), 13 degrees.
 
 **Monday September 16th**
 
-Off on our island tour today. Began with a 45 minute ferry ride to the Isle of Mull. Some of us sat inside, some up on deck. Beautiful scenery. From there we hopped on a double decker coach (all sat on upper deck) on driver’s side so that we had best views of the water. Jokes on us, bus commentary pointed to stuff on the other side. No signs of otters, dolphins or whales :(.
+![](/img/img_e1014.jpg)
+
+Off on our island tour today. Began with a 45 minute ferry ride to the Isle of Mull. Some of us sat inside, some up on deck. Beautiful scenery. 
+
+![](/img/img_1016.jpg)
+
+From there we hopped on a double decker coach (all sat on upper deck) on driver’s side so that we had best views of the water. Jokes on us, bus commentary pointed to stuff on the other side. No signs of otters, dolphins or whales :(.
+
+![](/img/img_e1088.jpg)
+
+![](/img/img_e1089.jpg)
 
 Mull coach took an hour and half to get across island. From here we took another short ferry to the Isle of Iona. Very small pretty island with a restored medieval Abby and nunnery. Settled in 563 AD by Columba. Great audio guide.
 
+![](/img/img_1045.jpg)
+
 Also stopped in the Martyr’s Cafe for wine and fresh garlic mussels. Yum, yum. Left this island in late afternoon and repeated the trip back to Oban.
+
+![](/img/img_1044.jpg)
+
+![](/img/img_e1005.jpg)
 
 Outside the ferry terminal, a little shack serving fresh seafood. Greg, Eileen and Lori partook of the very fresh oysters.
 
+![](/img/img_9725.jpg)
+
 Went to dinner at The Seafood House, food looked great. Scallops, langostinas, chowder, Lori and Giles not feeling well, came back early.
+
+![](/img/img_1093.jpg)
+
+![](/img/img_1094.jpg)
 
 Weather: cloudy, sunny bursts, 13 degrees
 
 **Tuesday September 17th**
 
-Went for a “real” breakfast this morning at a little local dive called Abbie’s. The owner was a true Scott’s, standoffish at first then keen to share his knowledge about sailing and the lift locks at Falkirk.
+Went for a “real” breakfast this morning at a little local dive called Abbie’s. The owner was a true Scot, standoffish at first then keen to share his knowledge about sailing and the lift locks at Falkirk.
 
 Drove to Stirling Castle. Long windy road through Lomond and Trossacks National Park.
 
