@@ -594,15 +594,35 @@ Weather: cloudy but warm 18 degrees.
 
 Jumped on the Hop On/Hop Off bus and did the complete loop with taped informative commentary and amazing antidotes. We got off at the People’s Palace and winter garden. Great Victorian fountain donated by Doulton depicting the British colonies. The People’s Palace had many displays of early Glasgow life. Unfortunately winter garden was inaccessible due to structural weaknesses.
 
+![](/img/img_e1203.jpg)
+
+![](/img/img_1196.jpg)
+
 Shelley and I took a detour to Barres Market to antique shop only to run into a kind gentleman who explained that the shops were only open on the weekend. Guess we are going back on Saturday! Stopped off at the Rumbling Tum for a quick coffee and toastie.
 
 Met up with Eileen and Greg at the City Chambers Building on George Square. The inside of this building is outstanding with all the marble and mosaic work. Got extra photos as Greg wandered up the stairs into the forbidden area.
 
-Greg headed to The Lighthouse (Macintosh architectural museum) while we went in search of the street murals. Eventually found a few though some on the list appear to be gone now. Left Eileen back at The Lighthouse to meet Greg will Shelley and I carried on to find more murals. We found a couple down an alley which led to a delicious gin in Sloan’s Pub (circa 1791).
+![](/img/img_1212.jpg)
+
+![](/img/img_1221.jpg)
+
+![](/img/img_1231.jpg)
+
+Greg headed to The Lighthouse (Macintosh architectural museum) while we went in search of the street murals. Eventually found a few though some on the list appear to be gone now. 
+
+![](/img/img_9975.jpg)
+
+![](/img/img_e1193.jpg)
+
+Left Eileen back at The Lighthouse to meet Greg while Shelley and I carried on to find more murals. We found a couple down an alley which led to a delicious gin in Sloan’s Pub (circa 1791).
+
+![](/img/img_e1184.jpg)
 
 Wandered back along St Vincent Street to The Griffin, a quaint pub outside the place we are staying . Eileen and Greg met us there for dinner. More gins and gougons (chicken fingers) for dinner.
 
 Off to King Tuts Wah Wah Hut to see Velvet Starlings. Turned out there were three bands, each playing for half an hour. The Revelations, Velvet Starlings and Morning Retake. Well what can I say...the venue is sparse, just an open floor and stage. Can hold 300 only about 45 people there. All extremely young kids in early twenties and their friends/family. We definitely looked like someone’s mother. I wouldn’t say it was horrible, entertaining and definitely raw. They sounded better on YouTube. Some very big names have played here, unfortunately not tonight.
+
+![](/img/img_1271.jpg)
 
 Have revised our opinion of Velvet Starlings after we researched him and found out he is only 16 years old. Quite an accomplished musician for his age, playing electric guitar, keyboards and lead vocals on all songs.
 
