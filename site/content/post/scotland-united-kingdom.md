@@ -630,15 +630,31 @@ Weather: sunny and very warm, 23 degrees
 
 **Friday September 20th**
 
-Shelley’s birthday today. We are heading on the hop off hop on and going to the Kelvingrove Art Gallery. A beautiful red sandstone building built in 2996 originally as a private mansion. Of particular interest was the Linda McCartney special exhibit of her photography. Hundreds of early photos of the Beatles, Stones, Janis, Hendrix and especially photos of her home life with Paul and her four kids. Great shots of their Scottish farm as well.
+![](/img/img_1239.jpg)
+
+Shelley’s birthday today. We are heading on the hop off hop on and going to the Kelvingrove Art Gallery. A beautiful red sandstone building built in 1896, originally as a private mansion. Of particular interest was the Linda McCartney special exhibit of her photography. Hundreds of early photos of the Beatles, Stones, Janis, Hendrix and especially photos of her home life with Paul and her four kids. Great shots of their Scottish farm as well.
+
+![](/img/img_1275.jpg)
 
 Also checked out the French artists, The Glasgow Boys (Scottish group of artists). Was most impressed with the Macintosh exhibit of furniture, stain glass, and pottery from the art nouveau era.
 
 Walked thru the Glasgow University grounds which reminded Eileen of Hogwarts and over to the Hunterian Art Gallery. Greg toured the “Macintosh Rooms”. We opted for a shady grass hill to take a much needed rest.
 
-Wandered down to Ashton Lane, a cute alleyway of restaurants and bars where we stopped for a much needed refreshment. Had dinner at The Bothy. Scallops, beef, sea bass and more STP (sticky toffee pudding) made for a delicious meal.
+![](/img/img_1278.jpg)
 
-Walked back to the unit thru two new areas: Woodland and Charing Cross. Beautiful mild night.
+Wandered down to Ashton Lane, a cute alleyway of restaurants and bars where we stopped for a much needed refreshment. 
+
+![](/img/img_1286.jpg)
+
+Had dinner at The Bothy. Scallops, beef, sea bass and more STP (sticky toffee pudding) made for a delicious meal.
+
+![](/img/img_1288.jpg)
+
+Walked back to the unit thru two new areas: Woodland and Charing Cross. We kept noticing that statues often have traffic cones perched on heads.  Apparently it is a thing here...so when in Rome!
+
+![](/img/img_0042.jpg)
+
+Beautiful mild night.
 
 Weather: sunny, warm, 25 degrees.
 
@@ -646,13 +662,27 @@ Weather: sunny, warm, 25 degrees.
 
 Up early to go to Barra’s Market an alley flea market. Made our way there by uber only to arrive to find the Scots are late risers and in no hurry to open up. Went back to the Rumbling Tum for a full fry breakfast. Wandered the alleys and found a number of antique shops selling a large amount of china and various odd items. Did find a few treasures: silver serving spoon, crockery, glass bottles embossed and a trivet. Stopped in the oldest sweets shop to buy some candies as well.
 
+![](/img/img_0073.jpg)
+
+![](/img/img_0070.jpg)
+
 Went in search of new street murals, found a few more. Went up Buchanan Street, the pedestrian shopping street. Stopped at an outdoor cafe for drinks and pizza.
+
+![](/img/img_e1296.jpg)
+
+![](/img/img_e1315.jpg)
 
 Headed back thru the city centre to spend some time at the unit before heading out for the evening. Went to Palominos for dinner, a local burger joint on the road outside our place.
 
-Tonight we went to Swing an underground 40’s style club. Listened to a jazz singer on piano named Mariana McGregor. She was very good playing Amy Winehouse and Michael Bible songs. However as the crowd thickened it became much harder to hear her.
+![](/img/img_1312.jpg)
+
+Tonight we went to Swing, an underground 40’s style club. Listened to a jazz singer on piano named Mariana McGregor. She was very good playing Amy Winehouse and Michael Buble songs. However as the crowd thickened it became much harder to hear her.
+
+![](/img/img_1337.jpg)
 
 Great people watching as many groups were celebrating birthdays. We had great seats so could watch the performances as well as the antics of the audience. Second act was The Shivering Sheiks, they were a very tight swing band playing many 1940’s and 1950’s hits. Topped off the night with a guest performer who sang Etta James’ At Last. Great night!
+
+![](/img/img_1330.jpg)
 
 Weather: full sun, 25 degrees
 
@@ -660,15 +690,25 @@ Weather: full sun, 25 degrees
 
 Went to a great breakfast spot called Singl-end, which refers to the one room tenements that are popular in this area.
 
-Walked over to a National Trust tenement home that was open and free today (being part of Open Doors Glasgow. Awesome preserved turn off the century home that consisted of a kitchen, bathroom, parlour and bedroom, as it would of looked in the 30’s.
+![](/img/img_1342.jpg)
+
+Walked over to a National Trust tenement home that was open and free today (being part of Open Doors Glasgow). Awesome preserved turn-of- the-century home that consisted of a kitchen, bathroom, parlour and bedroom, as it would of looked in the 30’s.
+
+![](/img/img_1343.jpg)
+
+![](/img/img_1345.jpg)
 
 Also stopped briefly in a synagogue that was also part of Open Doors Glasgow.
 
 Went down Sauchiehall Street collecting souvenirs: woollen socks, cool unique gin bottle, a book about Charles Rennie Macintosh and Scottish shortbread.
 
+![](/img/img_1253.jpg)
+
 Went to dinner at the Butterfly and Pig Pub. Had a plate full of root veggies and roasted duck, Greg and Shelley got the roasted beef. Eileen had the sea bass. Huge portions but we still found room to share an STP.
 
 Weather: showers off and on all day, cloudy, 18 degrees.
+
+![](/img/img_1259.jpg)
 
 **Monday September 23rd**
 
