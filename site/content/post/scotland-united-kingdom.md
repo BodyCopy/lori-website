@@ -532,15 +532,29 @@ Went for a “real” breakfast this morning at a little local dive called Abbie
 
 Drove to Stirling Castle. Long windy road through Lomond and Trossacks National Park.
 
+![](/img/img_1096.jpg)
+
 Beautiful scenery, first full sunny day in weeks.
 
 Toured Stirling Castle and learned about the early history of the castle. Basically it changed hands numerous times between the Scots and the English. They have restored the castle to how it would of been in 1560’s. I thought the great halls, private chambers and chapel were too sparsely decorated and very bare. Not sure that it would of been so in the day. They did a really good job of displaying the kitchen area though.
 
+![](/img/img_1102.jpg)
+
+![](/img/img_1101.jpg)
+
 On the way to Glasgow stopped at Falkirk to see the lift wheel. Pretty amazing technology of moving boats down the canal.
+
+![](/img/img_1111.jpg)
 
 Arrived at Sherbrooke Castle Hotel in the late afternoon. Greg and Eileen scored the tower suite which is quite unusual. We are in a large, high ceiling room without the interesting details.
 
+![](/img/img_1129.jpg)
+
+![](/img/img_1126.jpg)
+
 Giles has been feeling ill all day so didn’t join us for dinner. Food quite good but ate too much. (Sea bream,scallops, venison, chicken pot pie and various sweet desserts)
+
+![](/img/img_e1140.jpg)
 
 Weather: sunny, 17 degrees
 
@@ -548,13 +562,29 @@ Weather: sunny, 17 degrees
 
 Sad day today, saying good bye to Giles as he heads back home. Prior to heading to the airport we drove around the neighbourhood checking out the “middle class” mansions. Quite spectacular seeing as these homes appear to be still single family occupied.
 
-After dropping Giles off we drove to the Motherwell area to find the home Shelley’s grandmother lived in the 20’s. took pictures of the house only to have a noisy neighbour next door come out and ask us questions. Quite helpful, pointed us across the street to a woman named Watts (same name as Shelley’s grandmother). She ended up being no relation but was very friendly. Back to the other neighbours who’s husband had now joined her on the street, only to tell us that the home we thought was Shelley’s grandmothers was built after WWII. Mystery...not solved.
+After dropping Giles off we drove to the Motherwell area to find the home Shelley’s grandmother lived in, in the 20’s. Took pictures of the house only to have a noisy neighbour next door come out and ask us questions.She was quite helpful, pointed us across the street to a woman named Watts (same name as Shelley’s grandmother). This woman ended up being no relation but was very friendly. Back to the first neighbour who’s husband had now joined her on the street, only to tell us that the home we thought was Shelley’s grandmothers was built after WWII. Mystery...not solved.
 
-After a few wrong turns drove to Glasgow Cathedral and the Necropolis. Huge tombstones and mausoleums clearly for the wealthy merchants in the Victorian era. Also visited the oldest house in Glasgow (1471) and herb garden. Able to view three floors of this old priest’s house, The Provand’s Lordship.
+![](/img/img_1144.jpg)
+
+After a few wrong turns drove to Glasgow Cathedral and the Necropolis. Huge tombstones and mausoleums clearly for the wealthy merchants in the Victorian era. 
+
+![](/img/img_e1167.jpg)
+
+![](/img/img_1159.jpg)
+
+![](/img/img_1180.jpg)
+
+Also visited the oldest house in Glasgow (1471) and herb garden. Able to view three floors of this old priest’s house, The Provand’s Lordship.
+
+![](/img/img_1155.jpg)
+
+![](/img/img_1153.jpg)
 
 Arrived in late afternoon to our new place, pretty basic but centrally located. Walked to Sauchiehall St and went to the Willow Tea Room for afternoon tea. Lots of sweets in a very cool architecturally designed building and interior from the art nouveau era-a MacIntosh design.
 
-Continued to walk down Sauchiehall Street, a little seedy pedestrian shopping mall.
+![](/img/img_1347.jpg)
+
+Continued to walk down Sauchiehall Street, a little seedy but interesting pedestrian shopping mall.
 
 Back at the unit for an early night and to plan for the day tomorrow.
 
