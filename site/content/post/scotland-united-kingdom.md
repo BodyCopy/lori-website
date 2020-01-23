@@ -8,13 +8,13 @@ image: /img/img_0136.jpg
 ---
 **Monday September 2nd**
 
-Off to a great start, breezed thru customs at Pearson and again in Glasgow. Didn’t even have to chat with a live body, passport scanned electronically and we’re are in. Only glitch on way over was me feeling ill, not sure if it was the food or altitude but nearly passed out on plane.
+Off to a great start, breezed thru customs at Pearson and again in Glasgow. Didn’t even have to chat with a live body, passport scanned electronically and we’re all in. Only glitch on way over was me feeling ill, not sure if it was the food or altitude but nearly passed out on plane.
 
-Now it will be the effort to stay up all day to beat the jet lag. Walked over to the Ballantrae Hotel on York Street from the Edinburgh train station, dropped off luggage and headed over to the Royal Mile. Loads of cool pubs, and miles of wool shops. Went on a hunt for tartan colours, only to find that only the most common are stocked. The architecture is amazing especially the 6 storey tenement buildings.
+Now it will be the effort to stay up all day to beat the jet lag. Walked over to the Ballantrae Hotel on York Street from the Edinburgh train station, dropped off luggage and headed over to the Royal Mile. Loads of cool pubs, and miles of wool shops. Went on a hunt for tartan colours, only to find that only the most common are stocked. The architecture is amazing especially the six storey tenement buildings.
 
 ![](/img/img_0150.jpg)
 
-Went to the Deacon Brodie’s Tavern ( a Scottish version of Dr Jekyll-Mr Hyde) pub and had a late lunch. Then we wandered down the Royal Mile and went to the Edinburgh Museum for some local history.
+Went to the Deacon Brodie’s Tavern ( a Scottish version of Dr Jekyll-Mr Hyde story) pub and had a late lunch. Then we wandered down the Royal Mile and went to the Edinburgh Museum for some local history.
 
 ![](/img/img_0156.jpg)
 
@@ -22,11 +22,11 @@ Went to the Deacon Brodie’s Tavern ( a Scottish version of Dr Jekyll-Mr Hyde) 
 
 Weather: cloudy, light showers, very gusty winds about 18 degrees
 
-Practically crawled our way back to the hotel with achy feet and tired bodies. Early too bed! Early to rise though...as in the middle of the night due to construction right outside our window.
+Practically crawled our way back to the hotel with achy feet and tired bodies. Early too bed! Early to rise though...as in the middle of the night we were all disturbed due to construction right outside our window.
 
 **Tuesday September 3rd**
 
-Ate breakfast at a local spot called The Square, the mini Scottish plate (which wasn’t small) had haggis. Was tasty, spiced sausage!
+Ate breakfast at a local spot called The Square, the mini Scottish plate (which wasn’t small) had haggis. Was tasty, tasted like spiced sausage!
 
 Met Greg and Eileen, parked the car and headed to the Royal Mile. Made our way to Edinburgh Castle. Had a mini tour and then did a self tour of the castle and grounds. Highlights included prisons, Crown Jewels, the birthing room of Mary Queen of Scots for her son James, Margaret’s chapel (1100 AD), and a stop for scones in the old horse stables. We were also present for the firing of the cannon at 1:00 pm.
 
@@ -58,7 +58,7 @@ Boyd’s suffering from jet lag so we got a later start. Walked along Leith Walk
 
 Walked to the Leith Library hoping to find a hanging portrait of Giles’ great, great grandfather, David Low but unfortunately that tip was not reliable, though a nice librarian tried to help.
 
-On our walk back meandered into an antique centre, ended up purchasing an earthenware dairy creamer from the Port Dundas Pottery Co from Glasgow. Got my souvenir antique! Also Eileen purchased us royal whiskey and gin crystal glasses as keepsakes. I'm sure they will come in handy!
+On our walk back meandered into an antique centre, ended up purchasing an earthenware dairy creamer from the Port Dundas Pottery Co from Glasgow. Got my souvenir antique! Also Eileen purchased us royal whisky and gin crystal glasses as keepsakes. I'm sure they will come in handy!
 
 Came back to our place for a short rest then headed out again. Walked over to Princes St, to Sir Walter Scott Monument and thru the Gardens. 
 
@@ -108,7 +108,7 @@ Well off we went down the Royal Mile again (I think we have travelled up and dow
 
 Stopped into a local garden and glanced at the very ugly and confusing “new” Parliament Buildings.
 
-Attempted to go to Holyrood Palace however we were 4 minutes too late for last call. Oh well, took pictures from outside! Eileen and Greg went back to lodging , Shelley, Giles and I headed up to Arthur’s Seat. Only went partially up but what a view!
+Attempted to go to Holyrood Palace however we were four minutes too late for last call. Oh well, took pictures from outside! Eileen and Greg went back to lodging , Shelley, Giles and I headed up to Arthur’s Seat. Only went partially up but what a view!
 
 ![](/img/img_0324.jpg)
 
@@ -128,7 +128,7 @@ Weather: sunny and warm. Little drizzle in evening, 18 degrees
 
 **Friday September 6th**
 
-Up very early and off to St Andrew’s. rough go with the navigation though Greg managed to keep us on the road and get us where we wanted to go.
+Up very early and off to St Andrew’s, rough go with the navigation. Though Greg managed to keep us on the road and get us where we wanted to go.
 
 Stopped off in Burntisland, located the original school, The Burgh, that Giles’ great,great grandfather David Low was headmaster of. Took lots of pictures, it has now been converted to flats. No time to visit the gravesite unfortunately.
 
@@ -154,7 +154,7 @@ Arrived in the early evening to Stalker’s Lodge in the Straloch area. Absolute
 
 ![](/img/img_0420.jpg)
 
-Hanging in tonight around the fire, drinking whiskey and bourbon.
+Hanging in tonight around the fire, drinking whisky and bourbon.
 
 ![](/img/img_0421.jpg)
 
@@ -186,7 +186,7 @@ They had many running races including relay as well as a long distance run up an
 
 ![](/img/img_e0514.jpg)
 
-Most memorial event though was watching The Queen arrive in her Bentley and sitting in her Royal Box with Camilla and Charles. In attendance was also her grandchild Peter and his wife, Autumn ( a Canadian)! She was piped out with the massed bands (12 in all). We were able to get photos when she drove right by us.
+Most memorial event though was watching The Queen arrive in her Bentley and sitting in her Royal Box with Camilla and Charles. In attendance were her grandchild, Peter and his wife, Autumn ( a Canadian)! She was piped out with the massed bands (12 in all). We were able to get photos when she drove right by us.
 
 ![](/img/img_0534.jpg)
 
@@ -220,7 +220,7 @@ Drove to Blair Atholl and to Blair Castle. parts of castle built in 1269. Castle
 
 ![](/img/img_0595.jpg)
 
-We stopped off in Killiecrankie to view a gorge, waterfall and old stone rail bridge. Reportedly a Jacobite had leaped 18ft to freedom when fleeing a redcoat in the 1700’s. if true, very impressive. Giles tried...unsuccessful!
+We stopped off in Killiecrankie to view a gorge, waterfall and old stone rail bridge. Reportedly a Jacobite had leapt 18ft to freedom when fleeing a redcoat in the 1700’s,  if true, very impressive. Giles tried...unsuccessful!
 
 ![](/img/img_0610.jpg)
 
@@ -242,11 +242,11 @@ Weather: cool this morning then sunny, no wind, 16 degrees.
 
 **Monday September 9th**
 
-Rainy morning but spectacular mist across the highlands. We are sorry to leave this area. 
+Rainy morning but spectacular mist across the highlands. We are sad to say good-bye to this area. 
 
 ![](/img/img_0622.jpg)
 
-Well did a first today, went on a whisky tour and tasting at Edradour Distillery, drinking at 10:00 a.m. we all enjoyed this small independent run distillery, a great tour. They even gave us a free whiskey glass!
+Well did a first today, went on a whisky tour and tasting at Edradour Distillery, drinking at 10:00 a.m. in the morning!   We all enjoyed this small independent run distillery, a great tour. They even gave us a free whisky glass!
 
 ![](/img/img_0633.jpg)
 
@@ -254,11 +254,11 @@ Well did a first today, went on a whisky tour and tasting at Edradour Distillery
 
 ![](/img/img_0643.jpg)
 
-Off toward Inverness, stopping along the way at the Dalwhinnie Distillery. Didn’t do tour but Shelley, Eileen and I had a three tasting with delicious chocolates. We all enjoyed the 15 year old so purchased a bottle for our stay in the area.
+Off toward Inverness, stopping along the way at the Dalwhinnie Distillery. Didn’t do tour but Shelley, Eileen and I purchased a three tasting with delicious chocolates. We all enjoyed the 15 year old so purchased a bottle for our stay in the area (of course we did!).
 
 ![](/img/img_0645.jpg)
 
-Headed to Inverness, went to a restored 1639 year old church turned into a bookstore. Sold many antique books and prints. Great fun poking around here. Shelley and I purchased over hundred year old prints of Scottish sites.
+Headed to Inverness, went to a restored 1639 year old church, turned into a bookstore. Sold many antique books and prints. Great fun poking around here. Shelley and I purchased over hundred year old prints of Scottish sites.
 
 ![](/img/img_0648.jpg)
 
@@ -282,7 +282,7 @@ Beautiful sunrise overlooking the Firth of Moray. Surprised to see ponies right 
 
 ![](/img/img_0652.jpg)
 
-Headed off to Culloden Battlefield. Great information display centre. Very sad and while walking the field you can see stone markers indicating the clans that suffered losses.
+Headed off to Culloden Battlefield. Great informational display centre. Very sad, while walking the field you can see stone markers indicating the clans that suffered losses.
 
 ![](/img/img_0666.jpg)
 
@@ -292,7 +292,7 @@ Able to get up close and personal with a few hairy coo’s. They look so beautif
 
 ![](/img/img_0673.jpg)
 
-We also went to the Clava Cairns, Bronze Age temple and burial grounds. Great example of standing stones. We tried but no one passed through.
+We also went to the Clava Cairns, Bronze Age temple and burial grounds. Great example of standing stones. We tried, but no one passed through.
 
 ![](/img/img_0693.jpg)
 
@@ -352,7 +352,7 @@ Weather: rainy, extremely windy, felt colder than it was. When the sun did come 
 
 ![](/img/img_0783.jpg)
 
-Heading off this morning to Isle of Skye via the Dalmore Distillery. Unfortunately we needed to prebook a tour which we did not so instead had a wee dram tasting, purchased a glass and were on the road. Decided not to purchase the 14,000 pound bottle of whisky they had on display.
+Heading off this morning to Isle of Skye via the Dalmore Distillery. Unfortunately we needed to prebook a tour which we did not so instead had a wee dram tasting, purchased a glass and were back on the road. Decided not to purchase the 14,000 pound bottle of whisky they had on display!
 
 ![](/img/img_0790.jpg)
 
@@ -384,7 +384,7 @@ Weather: sunny , cloudy and rain. 13 degrees
 
 ![](/img/img_0828.jpg)
 
-At the end of the road we are on, is an old abandoned church and cemetery, Trumpan. Another scene of warring clans taking revenge on each other by massacring innocents in a church while worshipping. Perched overlooking the sea, sad and desolate.
+At the end of the road we are on, is an old abandoned church and cemetery, Trumpan. Another scene of warring clans taking revenge on each other by massacring innocents in a church while worshipping. Perched overlooking the sea....sad and desolate.
 
 ![](/img/img_0834.jpg)
 
@@ -406,17 +406,17 @@ The helicopter guests were sitting near us and struck up a conversation with us.
 
 ![](/img/img_0872.jpg)
 
-Apparently a woman I met in the parking lot said the last time she was here a couple arrived in a luxury yacht, and then rowed to shore in evening attire. Guess this is the place to be!
+A woman I met in the parking lot said the last time she was here, a couple arrived in a luxury yacht, and then rowed to shore in evening attire. Guess this is the place to be!
 
-Drove to a small gin and whisky distillery, had a tasting. Bought more glasses and a bottle of gin.
+Drove to a small gin and whisky distillery, had a tasting. Bought more glasses and a bottle of gin (oh yes we did!).
 
-Went to Kilmore church the scene of another early clan massacre. It was definitely eery, filled with old tombstones, crumbling church walls and sunken grounds. This place is definitely haunted, was the early site of pagan rituals as well. Wish I could come back at night. Fitting we are here on Friday the 13th! Great picture taking opportunity.
+Went to Kilmore church the scene of another early clan massacre. It was definitely eery, filled with old tombstones, crumbling church walls and sunken grounds. This place is definitely haunted, it was the early site of pagan rituals as well. Wish I could come back at night. Fitting we are here on Friday the 13th! Great picture taking opportunity.
 
 ![](/img/img_0889.jpg)
 
 ![](/img/img_0894.jpg)
 
-Prior to heading back to the house we stopped at the Stein Inn (circa 1790) for a drink. Oldest bar in the area. Unfortunately could only stand at the bar as rest of place was for dinner reservations only.
+Prior to heading back to the house we stopped at the Stein Inn (circa 1790) for a drink. Oldest bar in the area. Unfortunately could only stand at the bar as rest of the place was for dinner reservations only.
 
 Watched a Scottish movie, Calibre on Netflix tonight.
 
@@ -474,7 +474,7 @@ We drove through Fort Williams and took a side trip to Ben Nevins waterfalls. Lo
 
 ![](/img/img_0990.jpg)
 
-Arrived into the cute seaport, of Oban. Our three bedroom flat is in walking distance of the town. Basic accommodations with a view of the water. Only one bathroom though.
+Arrived into the cute seaport, of Oban. Our three bedroom flat is in walking distance of the town. Basic accommodations but with a view of the water. Only one bathroom though.
 
 Went to the distillery tour and tasting. Another whisky we like and another glass to take home!
 
