@@ -1,5 +1,5 @@
 ---
-title: 'Scotland, United Kingdom'
+title: 'Scotland, United Kingdom -September 2019'
 date: 2019-09-23T16:46:16.829Z
 description: >-
   Whirlwind trip thru the highlands and lowlands with Eileen and Greg Boyd,
