@@ -1,5 +1,5 @@
 ---
-title: Miami and British Virgin Islands
+title: Miami and British Virgin Islands-January 2019
 date: 2019-02-04T20:41:07.515Z
 description: >-
   Travelled the open seas with Giles, Maureen and Greg Santyr from Jan. 26 -
