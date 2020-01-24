@@ -1,5 +1,5 @@
 ---
-title: Philadelphia Trip
+title: Philadelphia-February 2019
 date: 2019-03-04T13:42:43.302Z
 description: >-
   Exploring Philadelphia as Giles attends a conference from Wednesday February
