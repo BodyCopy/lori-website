@@ -25,7 +25,7 @@ Hubiu Alley on Ziyou Road is a typical snack street with local vendors selling l
 
 ![](/img/img_3563.jpg)
 
-![](/img/img_3565.jpg)
+![](/img/img_3565-1-.jpg)
 
 We then went to the Yangtze River, took a boat ride to other side. Saw lots of bridges, went to Yangtze River Museum. Full of Mao photos, of him “taking the waters”.
 
