@@ -207,23 +207,55 @@ Bonus- our deluxe hotel is on waterway over-looking a beautifully lit bridge-sat
 
 **Friday November 16th**
 
+![](/img/img_3756.jpg)
+
 We rose early to a misty cool morning. We strolled to the water bridge and wandered along canals. This is a very quaint site, watched the shop owners open their stalls for the day. Saw a woman selling a variety of fish in an alleyway.
+
+![](/img/img_5000.jpg)
 
 Went back to the hotel for a modest breakfast. Staff waiting for us and quite pleased to be able to serve us.
 
 Off we go again for a long bus ride to the next town of Hangzhou. Countryside is unremarkable, mostly small urban towns with lots of industry and construction. Shocked at how many lakes, rivers and canals dot the area. Large barges carrying goods are seen everywhere floating along waterways.
 
+![](/img/img_4993.jpg)
+
 It is a rainy overcast day, which is unfortunate, as the town we are going to is known for it’s natural beauty. What should have been a two hour travel ended up being over three hours due to a serious traffic jam.
+
+![](/img/img_3760.jpg)
 
 Finally arrived and it is obvious that West Lake is a true natural and national treasure. The lake is surrounded by mountain ranges on three sides, beautiful gardens, ponds with goldfish and walking paths. We took a boat ride around the lake, it was very chilly but entertaining. We were on the boat with a large Chinese tour group all pushing and shoving to get the perfect selfie. David is camera obsessed, constantly having us pose here and there with most of the pictures cutting our bodies in half!
 
-Short time in park then off to Dragon Well tea area where we climbed a steep stone staircase, which was the original tea cart trail to the tea plateaus. Main tea harvest is in March to May but bushes are lush and sprinkled with small flowers. We went to a quaint restaurant for lunch, which served traditional dragon well green tea and a special shrimp dish made with the tea leaves- meal also included cauliflower and potato dishes that were very good.
+![](/img/img_5031.jpg)
+
+![](/img/img_5008.jpg)
+
+Short time in park then off to Dragon Well tea area where we climbed a steep stone staircase, which was the original tea cart trail to the tea plateaus. Main tea harvest is in March to May but bushes are lush and sprinkled with small flowers. 
+
+![](/img/img_3767.jpg)
+
+We went to a quaint restaurant for lunch, which served traditional dragon well green tea and a special shrimp dish made with the tea leaves- meal also included cauliflower and potato dishes that were very good.
+
+![](/img/img_5049.jpg)
 
 Walked then to the National tea museum where we had a lesson in green tea preparation and properties. Excellent quality and taste. We purchased enough for us and gifts for others- not cheap! Who knew green tea is supposed to be clear in colour and that you reuse the leaves for multiple days in a row! The trick is not using boiling water since this leads to bitterness. 80 degrees is perfect.
 
+![](/img/img_5047.jpg)
+
+![](/img/img_5054.jpg)
+
 Getting late in the afternoon and I’m getting anxious to shop but first David insists we must see Feu Lai Feng which is a Buddhist temple made of brick and wood with a spiral staircase from 920 AD. This is an impressive 13 story structure with steep uneven steeps. Up we go...unfortunately so overcast that the view of the waterway and skyline is not that impressive.
 
-Finally off to Hefang Street, the pedestrian shopping area. Lots of silk, tea, and souvenir shops. Beautifully lit up, streams running along side walkways. We missed the medicinal museum but did get to wander thru the shopping clinics that sell unusual Chinese medicinal products- fungi, ginseng roots, and animal parts- awesome!
+![](/img/img_5060.jpg)
+
+Finally off to Hefang Street, the pedestrian shopping area. 
+
+![](/img/img_3778.jpg)
+
+Lots of silk, tea, and souvenir shops. Beautifully lit up, streams running along side walkways. We missed the medicinal museum but did get to wander thru the shopping clinics that sell unusual Chinese medicinal products- fungi, ginseng roots, and animal parts- awesome!
+
+![](/img/img_5073.jpg)
+
+![](/img/img_5071.jpg)
 
 Felt very rushed and harried as I tried to find the perfect item to bring home- settled on some tea pots to use with the expensive dragon well tea that we purchased. Should have bought some ornate scissors that they sell also which they are well known for.
 
@@ -235,7 +267,11 @@ All in all, a little disappointed in all the wasted time stuck in the bus. This 
 
 We got up early and went to a large deluxe buffet breakfast in the hotel. Wasn’t adventurous enough to try the dried drunken fish or the black fungus dishes but Giles did. Said it tasted like tuna.
 
+![](/img/img_3541.jpg)
+
 Off we go again on the bus back to the train station in Shanghai. This time there was no traffic. However saw unbelievable construction and sweeping freeways that are often three stories high: ground level for cars, scooters, buses, middle for trains and an upper level for cars and pedestrians.
+
+![](/img/img_3780.jpg)
 
 Arrived at train station early. Said goodbye to our guide David, gave him a small bottle of maple syrup from Canada. Had fun trying to explain what it was. He thought it was perfume, then body lotion and then finally realized it was sweet and you could eat it...too funny. We spent an hour looking in shops while waiting to board. Beautiful inexpensive silk scarves, which I am sure I will regret not buying. Oh well, another good reason to come back.
 
@@ -247,18 +283,40 @@ Then into a cab and off we went to Zhiyin Hao which is a drifting cruise theatre
 
 The ship is a full sized replica of an original ship named Jianghua cruise from the early 20th century. You are transported back to the turn of the century and become involved in an immersive drama production. Prior to boarding all the actors in costume board the ship walking the deck as they explain why they are settling sail. All in Chinese but wasn’t too difficult to figure it out. Lots of love stories.
 
+![](/img/img_3551.jpg)
+
 Next we board and the inside is a beautifully restored wood and chandelier dance stage where the actors waltz to early music. Then we move to the bar area where we glimpse the drama that unfolds during a voyage with a live jazz band, and we get to enter different state rooms all beautifully decorated in period style with costumes and props to wear and watch the actors perform monologues about their particular situation.
 
-Sunny helped here with translation. Then off to the third floor where we entered our own cabin to try on costumes and imagine staying on board ourselves. Headed back to main floor to be immersed with actors, have a drink at the bar and view the skyline outside as we cruise along. An extremely impressive event and evening!
+![](/img/img_3554.jpg)
+
+Sunny helped here with translation. Then off to the third floor where we entered our own cabin to try on costumes and imagine staying on board ourselves. 
+
+![](/img/img_3558.jpg)
+
+![](/img/img_3809.jpg)
+
+Headed back to main floor to be immersed with actors, have a drink at the bar and view the skyline outside as we cruise along. An extremely impressive event and evening!
+
+![]()
+
+![](/img/img_3565.jpg)
+
+![](/img/img_3814.jpg)
 
 **Sunday November 18th**
 
-Leaving today...ran out to a local tea shop this morning to purchase some fermented black (red) oploong tea. Got to sample some and watch the proper way to make tea. Hoping to pick up some gifts at the two airports.
+Leaving today...ran out to a local tea shop this morning to purchase some fermented black (red) oploong tea. Got to sample some and watch the proper way to make tea. 
 
-Both airports, Wuhan and Beijing only had expensive designer shops and duty free stores. Oh well, know what I will buy next trip.
+![](/img/img_3568.jpg)
+
+Hoping to pick up some gifts at the two airports. Both airports, Wuhan and Beijing only had expensive designer shops and duty free stores. Oh well, know what I will buy next trip.
 
 Key impressions: students/university group rolled out the red carpet, no expense spared. So much food at each banquet meal, use of chop sticks for everything, rarely if ever touch food directly. Slurping, horking and nose blowing is normal. Traffic is crazy, constant ebb and flow of bikes, scooters and cars. Despite congestion and not staying in their lanes, seemed efficient and accident free. I would never want to drive here! Basically no English is spoken anywhere except by students. English signs in many places or pictures offered in restaurants. Money is a problem, they do not accept credit cards and ATM’s are not plentiful. Need to carry cash. Very prosperous country with building construction and super highways being built everywhere. Extremely clean surroundings and no evidence of anyone behaving badly. Though evidence of cameras everywhere!
 
+![](/img/img_5089.jpg)
+
 And the one hole was not really a problem.
+
+![](/img/img_3638.jpg)
 
 <!--EndFragment-->
